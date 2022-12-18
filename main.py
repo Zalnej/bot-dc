@@ -72,6 +72,10 @@ intents = discord.Intents.default()
 intents.message_content = True
 
 client = MyClient(intents=intents)
-client.run('MTAzNzA2MzM2MTcxNzg3ODg1NA.GqMBgj.CffOtmWGY5Jv3pySHishRAXw2O7Fvuo8EKYGaw')
+with open('token1.txt', 'r', encoding='utf8', errors='ignore') as f:
+    xd = f.readlines()
+
+f.close()
+client.run(xd)
 
 
