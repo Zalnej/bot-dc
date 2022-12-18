@@ -1,0 +1,476 @@
+- Pusta kartka a na niej nic
+- Ja lubię grać w piłkę nożną, jakby ktoś się mnie zapytał czy chce zagrać, chwilę bym się zastanowił i powiedział, że nie.
+- Na normalnym wifi da się pobrać kabel
+- Ocena jako ocena jest złym sposobem oceniania rzeczy
+- Nic więcej nic dodać
+- Kiedyś czasem Bethovena se jebłem
+- Ej wiecie co bym zrobił? Powystępował w sztukach teatralnych
+- Pamiętam kiedyś uczyłem psa karate. - Co? -Zdechł.
+- Dwadzieścia cztery na godzinę
+- Na końcu Fejta Fejt umiera
+- W Lolu nie chodzi o grę
+- Nie robisz demejdża demejdżem, robisz demejdż życiem
+- Jestem załamany ze swojego punktu krytycznego
+- Wszystkie kurwy tak grają, ja też czasami tak gram - Kasztan o pushowaniu mida
+- Mógłby być inny ale to już by nie było to samo
+- fifty-fifty 20% szans -o pozdrobocie
+- Jestem inteligenty mądry i mądry bo się słowa skończyły
+- Można okradać bezkarnie ludzi, chyba, że cię znajdą
+- Spartanie by tak szybko dobrego maga nie wyszkolili
+- Ostatnio zamordowali jednego co się powiesił
+- Ogolę wszystkich na rudo
+- Jeden support wiosny nie czyni
+- Nawet takie zwierzęta jak murzyni tworzą grupy nazywane plemionami i to już jest jakieś społeczeństwo
+- Gdzie było “E”.... kiedy Gondor! - o Elisce próbującej stealować barona
+- Liceum jest nacechowane cechami
+- Powtarzam ci szyszka po raz drugi, pod lodówką leży anioł
+- Filipa nie ma na tsowym lolu
+- Jestem superinteligentny ale głupi
+- Szyszka jak się żenię to lepiej brać dukaty czy hajs?
+- Jebnijmy wszędzie wszystko, 600 starczy?
+- Miód na oczy
+- Abu Dhabi i 70 rozbójników
+- On tam nic nie robi w tym Amazonie tylko chodzi i pracuje
+- Kombinujesz jak pies pod gówno
+- Facet lubi ciszę i spokój to se idzie na wojnę
+- Cegła to udomowiony kamień
+- Ludzie w calach zjebali misje na marsa
+- Kasztan czym się różni szybki od wolnego? - Szybki jest niebieski
+- Ta giełda to jest fajna bo czasem się wygrywa a czasem przegrywa
+- Przed osiemnastką miałem dwa lata
+- Dobrze że się skończyło, bo to by się dobrze nie skończyło
+- Nie masz słowa w tym pokoju
+- U mnie sąsiad tak się zaśmiał, że aż chciał z okna skakać
+- Naziści... usuną żydów    
+- Włącz multi i zagraj na singlu
+- Chleb z pieczywem
+- Jaki jest wspólny mianownik czterech z sześcioma?
+- Sensem życia jest walka z przeciwniki
+- Biblioteka jest potrzebna bo muszą czymś palić w piecu
+- Jestem rusherem ja zrushuje late
+- On może jeszcze umrzeć po tym jak zginie
+- Już jest wczoraj
+- Obeu zagłusza delte
+- Prawy prosty sierpowy
+- Patrz gdzie stoisz, ja patrzyłem gdzie się tepie (kasztan main ryze 1 sezon)
+- Najlepszym przewodnikiem jest guma
+- Studenci przeważnie w Październiku przychodzą na studia 
+- Gdzie mnie garnkiem! Bo zaraz zrobię takiego drifta że ci przejadę po mordzie!
+- Endening
+- Ok lato nie jest w maju, wiem więcej - 21 letni kasztan uczący się o porach roku
+- Półtora złoty za dwa złote
+- W Polsce mają mniej zębów niż ludzi
+- Ta piramida będzie waszym sarkofagiem (próbując powiedzieć “ten grobowiec będzie waszym grobowcem”)
+- Adolf Einstein
+- Brat Starka to jego matka
+- Sodomora i Gomora to średniowieczne miasto. Wróć, starożytne. Nie, prehistoryczne
+- Britex - Brexit po Kasztanowemu
+- Nie było mnie bo słuchałem jak sąsiedzi wysyłają sobie droga dźwiękową obrazy z laptopa na laptop
+- To jest kasztan?! Ja byłem święcie przekonany, że to japko
+- "To nigdy nie było hetero" - o swoim życiu jak mu się coś pojebało
+- “Między kowadłem a Motłem"
+- Go sie nie da zhazardować. - o szyszce który nie otwiera skrzynek w lolu
+- Bez obrazy kurwo szmato 
+- Zapomniałem na który klawisz mam R-kę
+- Czasem jest się pod wozem a czasem wóz cię przejeżdża - po wyjebaniu ze studiów
+- Dzisiejsze teraz
+- W jungli mi wychodzi - po zrobieniu 2/9 reksai
+- To będzie ta sama gra tylko endgame będzie ten sam - o Overwatchu 2
+- Psychologia odwróconego tłumu
+- Dzień dobry, Patryk z tamtej strony? (dzwoniąc do Patryka czy gra w lola)
+- Ojciec dzwoni do mnie tylko po ty by mnie opierdolić czy coś jeszcze? 
+- Full ad to jest rzut kartą
+- Czyściej tu jak jest posprzątane
+- Nie będę mieszać życia prywatnego z drugim prywatnym
+- Ja jako kryptogej mogę wyrzucić szyszkę
+- Jak Sauron miał na imię?
+- Każdy to obejrzał i dał ocenę 1 na 0	
+- Jedyna osoba która pokonuje mnie w kółko i krzyżyk to mój brat bo zawsze daje papier
+- Zjedź trochę do góry
+- Na której to jest stronie? - Na drugiej <krótka przerwa> - Patryk, na której to było stronie?
+- Cofnij dalej.
+- ze względu na to, że dużo dzieci jest zarażonych nie mają objawów
+- Poro, por... taki owoc
+- K: Czy to bóg? Sz: Nie to lampa.(Ewangelion)
+- Przygoda mi nie straszna… ale szkielety tak (pierwszy run w darkest dungeon)
+- To za pieniądze??? (kasztan w kościele)
+- To takie psie gadanie (kasztan o dodgowaniu W Setta) 
+- Bez Apheliosa oni nie mają chuja.
+- Ej Janek masz internetową kartę bycia Polakiem? (chodziło o profil zaufany)
+- Musisz picknąć topojunglera. - Co to jest? - Nie wiem ale musisz to picknąć.
+- Kalista jest mocna, Janek gra Threshem - plusy się dodają
+- A nie łatwiej umrzeć, żeby ktoś cię wskrzesił?
+- Zamienia twój board, z enemy stołem.
+- Analogia spierdoleń nie jest dokładnie taka jak to się mówi
+- taki wielki specjalista, “mój mama”
+- Merlin ma 3 żywioły : fioletowy, ogień i woda
+- ej słychać cię?
+- Ej kto tam leży przed martwym szyszką ale trochę za martwym szyszką w pociągu?
+- (Randomowo o drugiej w nocy, akademik) Kurwa, ruchają mnie ze wszystkich stron!
+- I oni tam biją się na pięści ale jeden ma miecz
+- Nigdy nie byłem przeciwko dziewczynom w esporcie, ale teraz jestem za
+- Ja próbowałem oskiego podrzygać na każdy możliwy sposób
+- Można wysadzić enemy adc po prostu go wysadzając
+- Nie ma chyba czarnych w Ameryce
+- … no i ja tego nie będę komentował, ALE… (Kasztan przed i po komentowaniu gry w lola)
+- to jest dobry build… ale nigdy (grając ap twitchem)
+- Ej, Białoruś jest bardzo nowoczesnym państwem.
+- Ja zawszę mogę grać…, chyba że mama mówi że nie (kasztan lat 23)
+- Ślepej kurze w dupę jajko 
+- kurwa jestem już 7 semestr na tej uczelni dostane ten papier żywy lub martwy
+- B: umrzesz z głodu? K: nie, za ciepło jest
+- Pożyjemy zobaczymy, albo nie pożyjemy i nie zobaczymy (kasztan o oczekiwaniu szczepionki na covid)
+- Mam cholernie długą symulację niczego
+- Bo mnie kurwa dyskoteka ojebała 
+- ...to byśmy to wygrali z palcem z dwoma dupa
+-Szycha: To co murzyni wychodzą i mają się bić od razu z Wielką Brytanią ? K: Ale zbuffowani murzyni.
+- Podpowiem wam, chcę wziąć do jungli pierwszą postać którą kupiłem za 6300… NO CZEMU MI NUNU ZBANOWAŁEŚ?
+- To nie mówi mi dobrze
+- jeszcze nie zamówiłem… ale nie mam zamiaru
+- w tym anime jest tajemnica "co przyniesie przyszłość" to jest tajemnica
+- Ja chciałbym zauważyć, że majkel dżordan grał przez 9 lat w koszykówkę i wygrał trzy trofea żeby się przygotować do filmu “królik bagz i granie w koszykówkę”
+- To jest japońskie, ale bardzo fajne (o great pretender)
+- Trailer psychologiczny
+- Ciemny chleb jest zdrowy i idzie się przez niego pochorować
+- Nie wiem czy się da ale na pewno się da
+- Te skiny za kryształy szału nie urywaja
+- Jhin igra z życiem
+- tutaj jest taki plus, że w hearthstonie jest minus
+- K: Patryk, nie podoba mi się obecna sytuacja P: Dlaczego? K: Bo mój koń jest w dupie
+- B: Nie powinno się chyba walić konia który był w dupie K: Ale to mój koń był w dupie
+-Tak, tak, tak, tak ale nie.
+- najpotężniejsza łydka to technika pułapki 
+-Żul:Ja byłem na czwartym roku studiów K: No ja jeszcze nie 
+- Diver Surrender (o itemie divine sunderer)
+- Ja bym powiedział że nie ma czegoś takiego jak kanadyjczycy.
+- Ja bym chciał zrobić dobrą postać ale nie combi mi się z fireballem
+- wood szczęścia możesz mieć
+-Jest zakaz strajku jeżeli rząd ci pozwoli 
+-I pamiętaj szyszka, gramy im na mordzie!
+- Carpe Diem - Chwytaj Dzień - Ja mam kurwa wysraj dzień.
+-Czy krzysiu jest skrótem od Kuba?
+- Milion śmierci to tragedia a dziesięć to masowa strzelanina 
+- Co ty Janek, pijesz wodę?
+- Bo wiesz, będąc grzybem wbiegłem znowu
+- Dorwie nas kapitalizm albo inne socjalistyczne gówno
+- Módlmy się aby słońce zaatakowało w dzień.
+- Nóż z ręki mi się wyciąga
+- Kebab jest dobry, ale jak nie jest dobry, to jest zły
+- To nie jest tak że hullbreaker jest OP, po prostu ma zjebane statystyki.
+- On ma krzaka w tym wardzie!
+- Moim zdaniem węgiel jest śmiesznym metalem
+- To jest wyrwane z kontekstu (między innymi o metalicznym węglu)
+- Jak się celuje to lepiej leci - Kasztan na kręglach
+- Ej ja nie chce być pedałem
+- Ej kasztan, AD Syndra działa? - A czy… woda jest turkusowa…? Czerwona? Zielona?
+- Na początku poznajemy bohaterów a na końcu się kończy
+- Nie bijcie się, nie bójcie się.
+- Obudziliście mnie właśnie jadłem
+- jak to z prądu robi zimne?
+- wszystko co mam… robi… rację
+- "przypowieść o chockapicku z nosa zbyt trudna do opisania"
+- a to jest to… blind SS (o blend S)
+- bojleroza
+- Ja nigdy nie powiedziałem że Faker jest moim ulubionym graczem… (3 sekundy przerwy) Jest, ale nie powiedziałem tego
+- Nadal masz jakieś narzędzia polityczne… asasynów czy coś 
+- Ja nie jestem Szekspirem żeby wszystko wiedzieć  
+- Jod jest na wchłanianie piorunotwórcze
+- Przestań spawać uran
+- Jako dobry ziomek, zaproponuje ci, jeśli chcesz pogadać napisz do Filipa czy kogoś bo ja się na tym nie znam
+- Najlepsze jest to że to nie działa (4 minuty przed końcem półtoragodzinnego egzaminu z programowania do nowej pracy)
+- Kontynuując od początku 
+- TRZYMAM SHIFTA LOL
+- O kurwa ale faza, nawet trzy- Szyszka o wykresie wskazowym
+- Nie musicie iść do domu ale nie możecie tutaj zostać
+- Warstwy cebuli prawdy
+- Dzisiaj mamy promocję, dwa w cenie trzech
+- Szyszka to ksywa, Chrząszczak nazwisko, Jakub brzmi głupio. KUBA! - zapytany jak ma na imię
+- Nie wiem - Zjarany szyszka zapytany przez rodziców gdzie był przez ostatnie parę godzin
+- Kasztan w udawanych dywizjach pancernych ma czołgi. - Ile? - Jeden
+- Jak się pisze wasal?
+- Jedną ręką gryzę rękę, drugą ręką próbuję coś pisać
+- Sodomia I Gomoria 
+- Jądra ludzkiej egzystencji
+- Wejściówka ze sleepem czy bez? (Szyszka) - Mieszany
+- Kakashi jest OP bo ma oczy
+- Musisz zrobić tak żeby najmniejsza była prędkość różnicy
+- A ja mu napisałem komentarz i mnie zbanował. - Narysowałeś mu kutasa w excelu
+- Przecinek, kropka, kurwa zjebało się wszystko ja pierdole - Pisanie inżynierki
+- Bo w Makro nie kupujesz detalicznie tylko na w pizdu
+- Ej Filip podkład płonie (mowa o pokładzie na statku)
+- Nożyczki które mają nóż 
+- Kasztan jest kurwa sikorką. Znaczy yyy... nie przeżyłby jako sikorka.
+- Tak było, pozdrawiam SS (szyszka na midzie mówi że nie ma przeciwnika, serio)
+- Wyobraziłem sobie takiego bardzo grubego Patryka i takiego bardzo chudego brata Bartka
+- No chuj nie asystent dyrektora to mi może z burger Kinga odpiszą
+- twoje zdanie nie ma zdania
+- Janek: może za 80 lat kupię sobie mechaniczne nogi (apropo zimnych płytek). S: albo klapki
+- Ja mam ksenofilię połączoną z fanatycznym e-girltaryzmem
+- Sz: Złożę zaćmienie, krwiopijcę, steraka,.. 
+  Marcin: A ty nie grasz Janną?
+- to że wsadza sobie dilodosa w dupę to nie strategia
+- B: po arbuzie nie nie chce się już jeść bo cię wypełnia
+  SZ: to jak styropian
+- Kasztanowi wszystko stoi
+-*dyskusja o najbardziej cierpiących postaciach w anime* Magda- ale ona jest głupią kurwą Szycha- ty też jesteś głupią kurwą ale nikt nie mówi że trzeba cię zarżnąć
+- Nie chce pedalskiej asteroidy
+- Ej janek, jak mi promotor napisał armor, magicresy czy gold?
+- Czasami to nie jest globusen tylko po prostu globus. 
+- ludzie nie piją innego napoju niż piwo, woda i alkohol
+- piszę pierwszego desperadosa
+- I rozkładali taki przenośny, mobilny łapacz prędkości - Mati o fotoradarze 
+- zajebali mi reda, a nie, nie trafiłem xD (po 4 piwach grając amumu)
+- jak wyglądają lupy? … Jak lupy! (Rozkładanie Arkham) 
+- Ja pierdole na chuj mi ten piasek (Kampania transsaharyjska 1941)
+- Byle do przodu, Czarna otchłań przed nami
+- Im dalej w las tym bardziej drzewo
+- Uznajmy, że jest remis - leżąc na ziemi po tym jak kasztan rzucił nim o ziemię
+- Ale szarża była epicka. Jak pod helmowym jarem, tylko to my byliśmy orkami.
+- Mamo patrz, Gandalf (o Filipe z rozpuszczonymi włosami, powracającym z imprezy wyposażony w motykę i koc) Dmuchany młotek kto inny niósł, chyba vexors 
+- Co o godzinie prawie 20 czternastolatka robi na omegle!? S-e-n-d n-u-d-e-s. Okej. Jesteś pijany możesz! (do szyszki piszącego na omegle)
+- Mati weź to wyłącz bo ja go płonę, a on jest w innym wymiarze!
+- 2 to zawsze nie 0 XD. - A chuj w dupie to jednak nie kaktus
+- Związek Radziecki to most łączący wielką brytanię z japonią (apropo Karen Kouiota)
+- Chuj z tym potem to zrobię, najpierw krematoria.
+- Czy któreś moje zdanie zaczyna się od "zwłok"?
+- … ale tym razem wyjebać kucyki, wyjebać ludzi, będzie historia
+- Jaki masz znak zodiaku? - Lew - A to nieważne, dostaniesz kubek z banku bo lew ma ujebaną rączkę
+- Z czym jest ta herbata? - Z papryką i kurczakiem
+-Filip, to byś stanął za tamtym Niemcem. - Ja bym nie mógł stanąć za Niemcem, co najwyżej przed. (chwila przerwy) Czekaj jednak nie, to się za bardzo kojarzy z Katyniem (parkowanie w Inowrocławiu)
+- Choroba psychiczna to jest coś co się ma albo coś czego się nie ma
+- Uraz psychiczny to jest życie, kurwa
+- On go rozjebał jedną ręką z palcem w dupie (o skillach bitewnych szyszki w tekkenie)
+- KURWAAAAA!!! Za bardzo skupiłem się na tym kutasie… przeszkadzacie mi. (podczas rankeda, serio)
+- No i jadę z pracy autobusem, czytam książkę Hitlera i się nakręcam 
+- kurwa, Frankfurterki, kurwa (chowanie zakupów po przeżyciu zimnej fuzji na bazie Marcina i offa, mazury 2020)
+- p: nie ma internetu i przeglądamy pornhuba z samymi tytułami - kurwa chrześcijański pornhub
+- Ale wy wiecie że jak macie przegrywającą linię to nie znaczy że musicie ją przegrać?
+- Filip podchodzi do żula i patrzy na alkohol Łukasz: Ten koleś jest pijany Filip kradnie alkohol i wypija: Teraz ja też!
+-W preyu jest tak że jak wchodzisz do pokoju to srasz do kubka
+-Po czym profilujesz Kube rozpruwacza? Po martwych dziwkach?
+Profilują cię na podstawie martwych dziwek prawda?
+-Magda: Jak się boisz to twój Mózg się nie rozwija. Filip: Ale wiesz że podważyłaś całe istnienie studiów?
+-Gonienie LB to jak jebanie się z koniem
+- Ł: Co wyście zrobili Magdzie F: Magdzie? Drina!
+-Wyzyskując pracowników chcesz osiągnąć większe zyski, molestując pracowników chcesz osiągnąć molestowanie
+- Ja jestem północą
+- czaisz? czosnkowa zawieszka na penisa
+- A co ty myślałeś? Wystarczy myśleć!
+﻿- Słyszycie mnie? Bo ja was nie widzę.
+- Kasztan, najwięcej na co mogę się zgodzić to na to że jesteś dobrym kutasem.
+- Zajebiste bo w kwietniu wyjdzie
+- To nie była kultura, to był gwałt
+- Bo twoje urodziny są z piątku na szóstek
+- Bo w Strongholdzie potrzebujesz armii assasynów, żeby coś robili
+- Patryk chodź tu szybko! To jest bardzo niebezpieczna pozycja na schodach!
+- To niech robi normalną kupę! 
+- Pojebało cię, kilo ziemniaków kosztuje 10zł
+- Zawsze był Szyszka, Janek, Kasztan. A teraz jednego brakuje żeby było więcej
+- (Mati) - Chodź na warzone, dzisiaj takie zajebiste 6 headów trafiłem. - Nooo, zajebiście, szkoda że wczoraj nie trafiłeś jak do ciebie stali plecami
+- To nie było tyberium, to był las, o chuj
+- Disco nunu dostanie disco wpierdol- 20 min przed dostaniem wpierdolu od nunu 
+- on mi uratował dupę i ja mu uratowałem dupę… chuj mu w dupę (o sojuszu w munchkinie)
+- kasztanowe stópki… nie, czekaj kunsztowne XD
+- Gdzie jest mój nóż do chuja?
+- Daj im dupy my już idziemy!
+- Patryk może napierdolimy się i pośpiewamy kiedyś? - Może w moją osiemnastkę? (powiedziane w wieku 22 lat)
+- Aleeee sobie ustawię “Paralegal” w DAC Beachcroft jako zawód na facebooku. Zajebista jestem - Ja nawet nie ustawiłem że skończyłem technikum
+- Ej, on próbował wyskoczyć z mojego wymiaru
+- (Magda) Tu nie ma koleżanek. (Patryk) Jest Kasz-chan.
+- Jego Q jest tak szerokie, że jego matka nie jest nawet tak szeroka (o hitboxie tahm kencha[Patch 9.14])
+- Klucz jest jak kamień tylko nie mogę sobie nim przyjebać w łeb
+- Huzar: Jaka jest różnica między postaciami którymi grał kasztan a tymi którymi nie grał? - Jak przegrywa tymi którymi nie grał to dlatego, że nimi nie grał, a jak grał to dlatego, że ma lagi.
+- Vexors: No dlaczego ten ult Pyka musi być X-em, nie może być kurwa kwadratem? - Dla ciebie może być XD
+- Tak naprawdę nic nie ma znaczenia... Jeśli przyjmiemy pewien punkt przyłożenia... *krótka przerwa* Ale to nie jest zdrowy sposób myślenia
+- Magda: Udostępnij mi steama, zrobię fnatic w darkest dungeon - I tak nie wyjdziecie z grupy
+- Dwóch Uzich to już prawie gatling
+- Droga na skróty może czasem ugryźć cię w dupę
+- Ej, a jakbyś była transwestrytytką… kurwa marchewka mi się z ryja wysypała 
+- Jak mi ślimak umrze to już chuj mi w dupę.
+- KASZTAN JEBNIJ KOMUŚ A NIE WPIERDALASZ WODĘ ŚWIĘCONĄ
+- Bo daje duże antyplusy… znaczy minusy.
+- Bugi to nie jest klasyczna broń.
+- Nawet nie jestem zły że wydaliśmy cztery razy połówkę za to zero siedem.
+- Ale to by było antyklimatyczne gdybyśmy przegrali przed ostateczną walką z umôrdothem (sławne ostatnie słowa przed antyklimatyczną porażką przed ostateczną walką z umôrdothem)
+- ale fajna ta dynamika banana (mówiąc o bezwładności ananasa)
+- Patryk- Zastanawiam się… (dłuższa przerwa)... Co ja mówiłem? Magda- Zastanawiam się Patryk- Kurwa nie dałem sobie żadnych poszlak xD
+- Ej, kolejka już była czy nie, bo ja nic nie pamiętam.
+- Nienawidzę dzieci… Jak istnieją pedofile, to ja jestem pedoniszczycielem. 
+- jesteś klocem, tylko stoisz i siedzisz
+- Marcin: Kto pierwszy ten pierwszy. P: Kto pierwszy ten zdodguje jeśli to nie będę ja
+- Wchodzi jak soczek, a wychodzi… jak soczek 
+- Zróbmy tier listę sklepów w Kruszwicy. Lidl będzie wysoko bo mają bioniczne kasjerki i ładne podłogi…
+- Rucha mnie najpierw wilk, potem niedźwiedź
+- Pickuje Galio a ludzie w szoku, gram tym gównem na supporcie już prawie pół roku
+- Mam mega chujowe wifi i dogaduję się z kreska enjoyerem na kabel… do internetu ma się rozumieć
+- Mania nie jest dobra, moja koleżanka to miała, mówiła że to chujowe a potem się zabiła
+- … I generalnie fajny film, ale … I ten przeciętny widz Hollywood jest jak ten Will Smith i ma coś przeciwko robotom przejmującym władzę nad światem (po obejrzeniu Ja, robot)
+- Mocz jest mainstreamowy, to gówno jest kinky
+- Kurwa ty debilu, kurwa mam teraz dezodorant na dupie, kurwa jesteś jak mój stary, kurwa zero wyobraźni
+- A ty nie wkładasz sobie gówna w dupę?
+- Wyrzutnia ... *dłuższa przerwa* ... Rakiet
+- Co masz do Toma Cruisa? - Jest Socjopedą (Scjentologiem)
+- Jesteś pedałem! - Nieprawda, lubię penisy
+- Podobno mam fajne stopy. Powiedział mi tak koleś w szpitalu psychiatrycznym.
+- Tak ominę śmierć przez całe swoje życie
+- Widziałeś kiedyś półwysep? Antarktyka to jest półwysep!
+- Dobrze że ruscy mają własny serwer (lola). Powinni mieć też własny kraj.
+- Płacz przez łzy
+- Moim zdaniem najlepiej jest donieść (ciążę) i dać do aborcji
+- Morfeusz bardzo mi się podobał bo to taki mięśniak który może ci wpierdolić, ale także fizolof
+- To Keanu grał neo? (bardzo owocny seans matrixa)
+- Broda dużo zmienia w człowieku
+- Ona wygląda jakby miała zespół tego, że twoja stara pije podczas ciąży (O Grecie Thunberg)
+- Zamknij mordę i mów
+- Zwierzęta nie mogą mieć baronów 
+- Chciała nacisnąć przycisk ale palec jej się zgiął i tramwaj odjechał.
+- Magda ty w tym roku robisz licencjat czy coś? - No nie, no tak
+- Otwierasz tego kurczaka i uderza cię ta fala 
+- Ona nie wygląda tak źle, wygląda jakby miała downa… Małego downa… (o dziewczynie uszola)
+- P: Co daje ta odżywka? M: - Włosy wypadające i przerzedzające się
+- Będziesz wyglądał jak… - Superman? Hardkorowy koksu? Pudzian? - Najman
+- Mam rację bo ty nie masz racji 
+-Obudzi się z ręką w przestrzeni kosmicznej 
+-Śmieszne że w Azji są ludzie… Pewnie w innych regionach też są. 
+-Tak właśnie myślałam że to dla elizy bethovena… ale to jedyny Chopin jakiego znam. 
+- Ja nie mówię teraz które anime jest lepsze. Ja wolę death note’a
+- piezgi są śmieszne bo wyglądają jak gówno
+- Bo to jest generalnie prank bo… bo ja tak mówię
+- Ja mam brak majtek... znaczy kolesia w znajomych co tak się nazywa
+- To było w wielu miastach w Łodzi.
+- Jakbym miała kupować nudesy, to bym nie chciała kupować takich, które mogę sama sobie wysłać.
+- Ja uważam że kosmos to jest duży (Magda astronom)
+- K:Magda masz prawo jazdy? 
+  M:Jak ja nawet pływać nie umiem
+- Mimo że jestem za krzakami trochę się obsrałam
+- Patrzcie patrzcie recyklingują butelki w lodówkę(chwila przerwy) … to jest pralaka [Magda podczas reklamy pralki]
+- Będziesz grał na imprezie w stateczki z droidem znaczy szychą?
+- Byłam w biedronce po hotdoga z żabki 
+- one wyglądają jak te ryby z wody
+- Ale to nie jest alchemia dobrej wymiany (o zamianie jogurtu greckiego na pizzę)
+-Couching couch(casting couch)
+- Ja cię nie podpuszczam ale wyjeb mu
+- Wszyscy ruchają moje konkubiny (oskar podczas sesji w CK2 po urodzeniu się jego 12 z rzędu córki) 
+- Szyszka widzę, że umiesz gadać z dziewczynami - uciekły.
+- influencer piramidalny
+- O: Łysy z trombi J: Dupom Kombi 
+- Bo my nigdy nie skończymy jeżeli nie zaczniemy
+- Lampa to taki Jezus tylko Jezus oświetla drogę przez życie a lampa przez 10 metrów
+- Doradzać i dialogować
+- Poproszę barmańską wiśniową… i yyy… barmańską wiśniową
+- Kasztan kurwa ty się uczysz na inżyniera nie na maga
+- Jakby sprzedawali gówno na patyku z Overlorda to i tak bym kupił
+- Nie, nie, nie. Trzy normalne albo jedną zwykłą.
+- Szyszka expiłbyś a nie próbujesz instalować jakieś japońskie pornogry
+- Cudzy dramat śmieszy najbardziej
+- W Auschwitz było fajnie.. to znaczy na tej wycieczce
+- Kurwa szyszka chyba źle zagadałem bo zamiast długopisu dostałem książkę o Jezusie
+- Oskar ratuj, te debile mi się na działkach zgubiły a ja za godzinę mam autobus
+- Mam malinowe. -Co malinowe? -Malinowe alkoholowe.
+- Chrobry jest niedobry
+- Faszyzm jest fajny dopóki to ty pałujesz innych a nie oni ciebie
+- Fajnie by było mieć takie własne małe SS
+- Max ma teraz na pieńku z Kolonko
+- Siedzę sobie na kiblu i sram. Patrzę i nagle, o kurwa, wanna dzwoni!
+- Jebany ograł mnie tym potem (podczas gry na intro boty)
+- Wyobraź sobie, że jesteś wodociągiem
+- Taric, Ashka elo, lane na zero
+- Wpisz mi jedną jako melee, drugą jako ranged (o książkach)
+- Dobra kosmici, chuj, wszystko jedno - o planach kasztana na przyszłość
+- My wierzymy, że nie wierzymy, że nic nie ma
+- Fajne, bo jak masz pecha to się stackuje
+- Filip nie zna zasad, więc ty przegrałeś (zasada nie ja)
+- J: Gdybym tylko miał na studiach tyle piąteczek co w hangarze.  Sz: Dwie? J:No
+- Kogo kurwa obchodzi czy Hideo Kojima wciąż skacze?
+- Argumentum ad Kasztanum
+- Ej chłopaki mam problem, bo nalałem se jagera i zgubiłem szklankę 
+- Ja znam kurwa wszystkich ludzi 
+- Szyszka: Nie tylko exp jest ważny w życiu. Janek: No, jest jeszcze mięso z mewy
+- Kassadin z Shenem na ryju
+- Ty mi się właściwie w tym Gimpie fioletowy zrobiłeś
+- Biegniesz sobie maraton, po 20km przychodzi pan doktor ze strzykawką, daje ci zastrzyk, leczy ci raka i biegniesz dalej
+- Jak masz braci pierdolec co wszystko robią za ciebie to tylko rzucasz kostkami (Janek o graniu w Arkham) 
+- Kurwa jebane kurwa
+- Kup se DX2. Ja ojebałem jedną butelkę i jak ręką odjął.
+- Jakby było trochę cieplej to by nie było zimno
+-Magda-Janek ile masz żon? Janek-Czekaj… nie pamiętam. 
+- Bardzo mnie cieszy że wyszliśmy z liceum i wróciliśmy na wojnę 
+- Dziadek miał taki problem, że miał żonę i dzieci
+- To jest stara taktyka. Włosi w latach 60-tych wymyślili trójkąty.
+- Na Rce jedyne co on miał to bugi.
+ - Wygląda na to że z tej połowy drużyny ja byłem najlepszą ⅓ drużyny. 
+- Który szkielet wygląda na najsilniejszego? J: Ten z bazooką
+-Bieżnia jest jak granie Kalistą 
+- Jak wyczyścisz rowek dostajesz 50 punktów 
+- To jest moje opus magnus i nic lepszego nie zrobię 
+- J:Został nam budżet, kupmy to dildo S:Po co? J: Teraz po nic, ale to jest inwestycja w przyszłość
+- Jestem w kikucie 
+- Nas jest tyle ile tu jest czy kogoś nie ma?
+- Ja cię trzymam za biodro, ty mnie trzymasz za dupę. O! Jakoś tak!
+- Ale masz Patryk duży agrest (wskazując na jabłoń, syn rolnika)
+- Zaraz się popłaczę. Na szczęście mam ogórki konserwowe.
+- Ej woźnica chodź się jebać. Ale najpierw znajdź mi windows (hyc) fona.
+- Marcin sprawdź… - Nie mogę mam windows fona.
+- Czy ja jestem Marcin? No w sumie jestem Marcin
+- K: Co robiłeś najbardziej ambitnego? M: nie 
+- Ciąg dzidy kasztan! TAK! DOBRZE! 
+- Ten Ghost jest OP na tym trybie, można biegać i w ogóle
+- Hmm, nie polecają grać Sylasem w dżungli…
+- P: O debile. M: Cześć, to my
+- Wyjdź wróżko z ziemi, pomogę Ci. Chodź tu wróżko. Gruba Ryba: “rafał z czego się tak śmiejesz?” 
+- HY HY HY HY nie wiem
+- Płacenie mniej opłaca się bardziej niż płacenie więcej
+- Śmierć jest niezłym narzędziem komediowym
+-Robił 90% roboty przez 50% czasu
+- (Ł): Świat pierścieniowy? A co to jest? (Szy): To jest… (Ł): Ja wiem co to jest świat pierścieniowy
+- To jest taki Zmierzch tylko że z wampirami. 
+- (Ł) Reportujmy go, - (F) Kogo? Streamera czy Talona [1/12]? - (Ł) Tak
+- Kasztan kwantowy - enemy mid jednocześnie ma i nie ma flesha
+- im więcej ludzi tym większa grawitacja, to więcej ludzi przychodzi
+- Mamy combo. Janek ma saksofon a ja mogę robić dużo ataków
+- mi nie przeszkadza że w attack on titan używają anime
+- Rzucam w niego atak z mieczem
+- GDZIE JEST MOJE AIDS?
+-Magda: Mam normalny puls Ł:Mam 50 tysięcy
+- Coś mi dzwoni w kościele ale nie było kościoła
+- Poddali się tryhardy
+- Nie uprzedmiotawiaj moich przedmiotów 
+- Jak czerpać inspiracje to od najlepszych (łukasz o III rzeszy)
+- w Grudziądzu mają dobre wina… a nie czekaj to w Gruzji 
+- wegetarianie pili krew zwierząt 
+- prosty żart seksualny
+- (Bartek): Ty kończysz magisterkę? (Łukasz): Nie, ja kończę tą rozmowę.
+- B: Mam na sobie moją clashową koszulkę ; F: Dlaczego jest clashowa; B:Bo ją dzisiaj na clasha ubrałem
+- Gościu który się nie potknął o kamień, nie kupił sobie protezy do zębów bo nie wybił zębów. Przez to gościu co robi protezy do zębów nie sprzedał protezy i przez to zbankrutował i stwierdził że system jest zjebany i zaczął robić bunt (bartek o genezie drugiej wojny światowej)
+- Ryboludzie są praktycznie nieśmiertelni, dopóki ktoś ich nie zabije (lovecraft 101)
+- Technicznie rzecz biorąc mózg jest w każdej głowie.
+- Vexors pokaż mi najpierw cycki a potem SWAG
+- Posuwam cię moją jaszczurką!
+- Toaleta już działa, teraz robimy tak żeby się dało spłukiwać.
+- Nie ma dowodów że fejt wiedział o ruchaniu
+-[...] i oni wbili drugi level i nas zabili, ale co ciekawe tylko mnie zabili.
+- Ludzie biorą środki przeczyszczające przed samobójstwem żeby się nie zesrać i to jest normalna rzecz
+- Z zamkniętego i Samolon nie poleje
+- Filip byłby bardzo zabawny gdyby był niewidomy Magda-Rymowanki z papieżem są jak pudełko czekoladek Bartek-Jestem Autystom 
+- Ciebie nawet na debila nie da się wykształcić
+- W Naruto zmieniają gałki oczne częściej niż ubrania 
+- W biblii mają zapisane że wszyscy mogą być żydami 
+- Ja raz próbowałem snusa i zaczęło mi się kręcić w głowie, a potem dostałem sraczki i poszedłem spać
+ Jakby było odwrotnie to by było inaczej
+- Wyglądała na starszą - pedofil z krakowa Polcon 2015?
+- On powiedział kurwa, a ona se wydedukowała wiersz mickiewicza.
+- To hardkorowi prawie chrześcijanie 
+- Na rozpoczęcie trzeba zacząć
+- Dusisz się czy połykasz (jakieś dziecko)
+- Życie to walka, ja całe życie walczę. (Paszylk)
+- Jebnij se kawę, albo niech Marek ci jebnie kawę, albo ja ci jebne
+- Wygląda to jak piramida ale to nie jest piramida finansowa - random z piramidy finansowej
+- I się kurwa okazało że tych całek trzeba kurwa umieć używać.
+- Zapach cipy dziewięciolatki najlepsze
+- chichuauy są saperskie
+-Jak to mi zadziała to jestem jakiś kurwa mądry (Maciek The Programista)
+-"Prostokąt to bardzo szybko zmieniający się trójkąt"
+- Przyjechał szaman, odczynił czary i już do tej chłodni wieprzowiny nie można kłaść
+
+
+
