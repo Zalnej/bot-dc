@@ -5,8 +5,10 @@ from datetime import datetime, time, timedelta
 import asyncio
 from PIL import Image, ImageDraw, ImageFont
 
-WHEN = time(20, 37, 10)
-channel_id = 1054022219099021332
+#WHEN = time(20, 37, 10)
+WHEN = time(7, 0, 0)
+#channel_id = 1054022219099021332 
+channel_id471258338366324738 #ogolny
 
 def daj_cytat(lines):
     o = 0
