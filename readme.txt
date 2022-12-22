@@ -178,7 +178,8 @@
 - Przestań spawać uran
 - Jako dobry ziomek, zaproponuje ci, jeśli chcesz pogadać napisz do Filipa czy kogoś bo ja się na tym nie znam
 - Najlepsze jest to że to nie działa (4 minuty przed końcem półtoragodzinnego egzaminu z programowania do nowej pracy)
-- Kontynuując od początku 
+- Kontynuując od początku
+szycha
 - TRZYMAM SHIFTA LOL
 - O kurwa ale faza, nawet trzy- Szyszka o wykresie wskazowym
 - Nie musicie iść do domu ale nie możecie tutaj zostać
@@ -218,9 +219,13 @@
 - Czasami to nie jest globusen tylko po prostu globus. 
 - ludzie nie piją innego napoju niż piwo, woda i alkohol
 - piszę pierwszego desperadosa
+tomek
+- Zainwestujmy w hajs
+mati
 - I rozkładali taki przenośny, mobilny łapacz prędkości - Mati o fotoradarze 
 - zajebali mi reda, a nie, nie trafiłem xD (po 4 piwach grając amumu)
 - jak wyglądają lupy? … Jak lupy! (Rozkładanie Arkham) 
+filip
 - Ja pierdole na chuj mi ten piasek (Kampania transsaharyjska 1941)
 - Byle do przodu, Czarna otchłań przed nami
 - Im dalej w las tym bardziej drzewo
@@ -258,6 +263,7 @@ Profilują cię na podstawie martwych dziwek prawda?
 - A co ty myślałeś? Wystarczy myśleć!
 ﻿- Słyszycie mnie? Bo ja was nie widzę.
 - Kasztan, najwięcej na co mogę się zgodzić to na to że jesteś dobrym kutasem.
+vexors
 - Zajebiste bo w kwietniu wyjdzie
 - To nie była kultura, to był gwałt
 - Bo twoje urodziny są z piątku na szóstek
@@ -271,6 +277,7 @@ Profilują cię na podstawie martwych dziwek prawda?
 - Disco nunu dostanie disco wpierdol- 20 min przed dostaniem wpierdolu od nunu 
 - on mi uratował dupę i ja mu uratowałem dupę… chuj mu w dupę (o sojuszu w munchkinie)
 - kasztanowe stópki… nie, czekaj kunsztowne XD
+patryk
 - Gdzie jest mój nóż do chuja?
 - Daj im dupy my już idziemy!
 - Patryk może napierdolimy się i pośpiewamy kiedyś? - Może w moją osiemnastkę? (powiedziane w wieku 22 lat)
@@ -303,6 +310,7 @@ Profilują cię na podstawie martwych dziwek prawda?
 - Rucha mnie najpierw wilk, potem niedźwiedź
 - Pickuje Galio a ludzie w szoku, gram tym gównem na supporcie już prawie pół roku
 - Mam mega chujowe wifi i dogaduję się z kreska enjoyerem na kabel… do internetu ma się rozumieć
+magda
 - Mania nie jest dobra, moja koleżanka to miała, mówiła że to chujowe a potem się zabiła
 - … I generalnie fajny film, ale … I ten przeciętny widz Hollywood jest jak ten Will Smith i ma coś przeciwko robotom przejmującym władzę nad światem (po obejrzeniu Ja, robot)
 - Mocz jest mainstreamowy, to gówno jest kinky
@@ -349,11 +357,13 @@ Profilują cię na podstawie martwych dziwek prawda?
 - one wyglądają jak te ryby z wody
 - Ale to nie jest alchemia dobrej wymiany (o zamianie jogurtu greckiego na pizzę)
 -Couching couch(casting couch)
+oski
 - Ja cię nie podpuszczam ale wyjeb mu
 - Wszyscy ruchają moje konkubiny (oskar podczas sesji w CK2 po urodzeniu się jego 12 z rzędu córki) 
 - Szyszka widzę, że umiesz gadać z dziewczynami - uciekły.
 - influencer piramidalny
 - O: Łysy z trombi J: Dupom Kombi 
+janek
 - Bo my nigdy nie skończymy jeżeli nie zaczniemy
 - Lampa to taki Jezus tylko Jezus oświetla drogę przez życie a lampa przez 10 metrów
 - Doradzać i dialogować
@@ -404,6 +414,7 @@ Profilują cię na podstawie martwych dziwek prawda?
 - Jak wyczyścisz rowek dostajesz 50 punktów 
 - To jest moje opus magnus i nic lepszego nie zrobię 
 - J:Został nam budżet, kupmy to dildo S:Po co? J: Teraz po nic, ale to jest inwestycja w przyszłość
+marcin
 - Jestem w kikucie 
 - Nas jest tyle ile tu jest czy kogoś nie ma?
 - Ja cię trzymam za biodro, ty mnie trzymasz za dupę. O! Jakoś tak!
@@ -417,9 +428,11 @@ Profilują cię na podstawie martwych dziwek prawda?
 - Ten Ghost jest OP na tym trybie, można biegać i w ogóle
 - Hmm, nie polecają grać Sylasem w dżungli…
 - P: O debile. M: Cześć, to my
+rafu
 - Wyjdź wróżko z ziemi, pomogę Ci. Chodź tu wróżko. Gruba Ryba: “rafał z czego się tak śmiejesz?” 
 - HY HY HY HY nie wiem
 - Płacenie mniej opłaca się bardziej niż płacenie więcej
+wyko
 - Śmierć jest niezłym narzędziem komediowym
 -Robił 90% roboty przez 50% czasu
 - (Ł): Świat pierścieniowy? A co to jest? (Szy): To jest… (Ł): Ja wiem co to jest świat pierścieniowy
@@ -440,6 +453,7 @@ Profilują cię na podstawie martwych dziwek prawda?
 - wegetarianie pili krew zwierząt 
 - prosty żart seksualny
 - (Bartek): Ty kończysz magisterkę? (Łukasz): Nie, ja kończę tą rozmowę.
+bartek
 - B: Mam na sobie moją clashową koszulkę ; F: Dlaczego jest clashowa; B:Bo ją dzisiaj na clasha ubrałem
 - Gościu który się nie potknął o kamień, nie kupił sobie protezy do zębów bo nie wybił zębów. Przez to gościu co robi protezy do zębów nie sprzedał protezy i przez to zbankrutował i stwierdził że system jest zjebany i zaczął robić bunt (bartek o genezie drugiej wojny światowej)
 - Ryboludzie są praktycznie nieśmiertelni, dopóki ktoś ich nie zabije (lovecraft 101)
@@ -456,6 +470,7 @@ Profilują cię na podstawie martwych dziwek prawda?
 - W Naruto zmieniają gałki oczne częściej niż ubrania 
 - W biblii mają zapisane że wszyscy mogą być żydami 
 - Ja raz próbowałem snusa i zaczęło mi się kręcić w głowie, a potem dostałem sraczki i poszedłem spać
+randomy
  Jakby było odwrotnie to by było inaczej
 - Wyglądała na starszą - pedofil z krakowa Polcon 2015?
 - On powiedział kurwa, a ona se wydedukowała wiersz mickiewicza.
@@ -471,6 +486,6 @@ Profilują cię na podstawie martwych dziwek prawda?
 -Jak to mi zadziała to jestem jakiś kurwa mądry (Maciek The Programista)
 -"Prostokąt to bardzo szybko zmieniający się trójkąt"
 - Przyjechał szaman, odczynił czary i już do tej chłodni wieprzowiny nie można kłaść
-
+koniec
 
 
