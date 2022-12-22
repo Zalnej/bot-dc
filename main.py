@@ -228,7 +228,7 @@ class MyClient(discord.Client):
                 seconds_until_target = (target_time - now).total_seconds()
 
 
-                seconds_until_target=5
+                #seconds_until_target=5
                 print(seconds_until_target)
 
                 await asyncio.sleep(seconds_until_target)
@@ -251,7 +251,7 @@ class MyClient(discord.Client):
                 seconds = (tomorrow - now).total_seconds()
 
 
-                seconds=5
+                #seconds=5
                 print(seconds)
 
                 await asyncio.sleep(seconds)
