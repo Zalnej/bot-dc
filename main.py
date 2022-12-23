@@ -8,7 +8,7 @@ from PIL import Image, ImageDraw, ImageFont
 #WHEN = time(20, 37, 10)
 WHEN = time(7, 0, 0)
 #channel_id = 1054022219099021332 
-channel_id471258338366324738 #ogolny
+channel_id=471258338366324738 #ogolny
 
 def daj_cytat(lines):
     o = 0
@@ -193,7 +193,8 @@ class MyClient(discord.Client):
         await client.wait_until_ready()
         if message.author == client.user:
             return
-        if  client.user in message.mentions:
+        #if  client.user in message.mentions:
+        if message.content=='<@1037063361717878854>':
             # The bot was mentioned in the message
             #print('zostałem spingowany')
             kto_napisal, tekst = daj_cytat(lines)
